@@ -3,4 +3,4 @@
 ## hello gabriella
 
 :smile:
-> **Hi Billie!**
+> **Hi Billie**
